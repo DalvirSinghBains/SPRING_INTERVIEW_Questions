@@ -15,3 +15,14 @@ https://www.tutorialspoint.com/spring/spring_interview_questions.htm
 
 https://java2blog.com/spring-interview-questions-and-answers/
 
+https://java2blog.com/spring-interview-questions-and-answers/
+
+
+
+http://javastudy.ru/interview/jee-spring-questions-answers-2/
+
+
+
+https://explainjava.com/spring-interview-questions/
+
+
